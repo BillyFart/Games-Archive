@@ -1,3 +1,3 @@
 SchoolBoy Runaway
-[Download](https://www.mediafire.com/file/30b5tx98hlxesnt/Lethal_Company.zip/file)
-・Soon・
+[Download](https://www.mediafire.com/file/b4a7wgguiqmgldz/SchoolBoy+Runaway.zip/file)
+・Working・
